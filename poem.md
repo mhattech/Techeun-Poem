@@ -1,0 +1,6 @@
+- Lockers, metal detectors, steel doors, C.O.
+- to C.O., different forms, desks—mouth open, turn—so
+- slow I use the time to practice patience,
+- grace, tenderness for glassed-in guards. The rules
+- recited as if they were the same rules every week:
+- I can wear earrings. I cannot wear...
